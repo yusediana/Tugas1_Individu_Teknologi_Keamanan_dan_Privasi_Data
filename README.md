@@ -1,0 +1,1 @@
+# Tugas1_Individu_Teknologi_Keamanan_dan_Privasi_Data
